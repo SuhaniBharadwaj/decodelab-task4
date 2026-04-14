@@ -38,7 +38,7 @@ https://suhaniportfolio-web.netlify.app/
 
 👩‍💻 Author
 
-Suhani Bharadwaj 🚀
+Suhani Bhardwaj 🚀
 
 ---
 
